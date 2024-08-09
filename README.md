@@ -1,4 +1,2 @@
 ### boas vindas ao meu perfil :Jem1f14
-![
-a pixel art of a skeleton riding a motorcycle on a white background
-] ()
+![![neymar](https://github.com/user-attachments/assets/e8e99727-dca8-4bde-8512-faeeecea7b86)
